@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @A-DHI
 - 👀 I’m interested in Tech 
-- 🌱 I’m currently learning BCA 
+- 🌱 I’m currently Working As Techinal Support Exicutive
 - 💞️ I’m looking to collaborate with Tach lovers
 - 📫 How to reach me in adithyaadhi523696@gmail.com
 
